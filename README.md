@@ -1,5 +1,5 @@
 - 👋 Hi, I’m VISHAL 
-- 👀 I’m interested in Programming, Gaming & Drawing
+- 👀 I’m interested in Programming, Drawing & Gaming
 - 🌱 I’m currently learning new Skills & Technologies
 - 💞️ I’m looking to collaborate on building Projects
 - 📫 How to reach me ... vishalmalge02@gmail.com
